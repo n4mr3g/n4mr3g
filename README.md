@@ -19,6 +19,7 @@ i get a bit obsessive once i'm deep in a project. details, edge cases, the thing
 - 🇯🇵 learning japanese
 - 🎮 video games across most decades — grew up in arcades
 - 🎵 making music
+- 🎾 padel
 
 ---
 
